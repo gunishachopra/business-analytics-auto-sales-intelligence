@@ -42,6 +42,9 @@ This project demonstrates how data-driven dashboards can help executives:
 
 ---
 
-
+GUNISHA CHOPRA
+Business Analyst | Data Storyteller | Power BI Enthusiast
+📫 Connect on LinkedIn: www.linkedin.com/in/gunisha-chopra-b16768262
+Email: ch.gunisha@gmail.com
 
 
